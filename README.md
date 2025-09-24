@@ -1,4 +1,4 @@
 # Hi there, Jared here👋
 
-<img  src="https://i.pinimg.com/originals/77/ee/f1/77eef18d24ef496f6332f7f89142388c.gif?raw=true">?raw=true">
+<img  src="https://i.pinimg.com/originals/a8/09/94/a8099418b2137e113c808fff5df2dc2a.gif?raw=true">
 
